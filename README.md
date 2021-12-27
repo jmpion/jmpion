@@ -1,4 +1,4 @@
-# Welcome on my GitHub ! 
+# Welcome to my GitHub ! 
 
 *My biography is still under construction, please be patient 😅*
 
